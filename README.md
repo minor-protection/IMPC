@@ -1,1 +1,1 @@
-# Minor-protection
+# Internet Minors Protection Convention
